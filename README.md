@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @forohioscriptinglolnnzzeq
-- 👀 I’m interested in Fe2
+- 👀 I’m interested in doing MODS for Minecraft!
 - 🌱 I’m currently learning Scripts
-- 💞️ I’m looking to collaborate on FE2Company
-- 📫 How to reach me idk maybe
+- 💞️ I’m looking to make sum colloborations or smh
+- 📫 My discord is : xexteq441 ( if you want smh )
 - 😄 Pronouns: ???
 - ⚡ Fun fact: stupid guy
 
